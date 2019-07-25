@@ -1,0 +1,24 @@
+# Daily List
+
+- Smile.
+- Drop your shoulders.
+- Unclench your jaw.
+- Stop your tongue from pressing into the top of your mouth.
+- Relax your hands and wrists.
+- Breathe.
+- Connect.
+- Share.
+- Edify.
+- Do what you say you'll do. (Follow through.)
+- Communicate what you'll do.
+- Demonstrate competence.
+- Admit when you're wrong.
+- Fix what you break.
+- Leave things better than you found them.
+- Show that you care.
+- Act with integrity.
+- Listen to others.
+- State your intentions.
+- Live your values.
+- Express who you're meant to be.
+- "Hug them with your eyes."
